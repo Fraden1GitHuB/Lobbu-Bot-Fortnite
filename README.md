@@ -16,4 +16,4 @@ Bye! Looking for an optimal Fortnite LobbyBot!
 Contact me on Discord for information (Languages to speak: IT / EN)
 
 
-Discord Tag: Fraden1 # 0024
+Discord Tag: Fraden1#0024
